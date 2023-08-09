@@ -12,16 +12,16 @@ As an active DJ, he's been seen in Wrocław's Ciało and Wyspa Tamka as well as 
 
 ## Links
 
-Instagram: https://www.instagram.com/adam.xra/
+Soundcloud: [soundcloud.com/adam_ra](https://soundcloud.com/adam_ra)
 
-Soundcloud: https://soundcloud.com/adam_ra
+Instagram: [instagram.com/adam.xra](https://www.instagram.com/adam.xra/)
 
-Bandcamp: http://adamra.bandcamp.com/
+Bandcamp: [adamra.bandcamp.com](http://adamra.bandcamp.com/)
 
-Spotify: https://open.spotify.com/artist/1tS04Kwkhb59MRBsJDseQj
+Spotify: [open.spotify.com/artist/1tS04Kwkhb59MRBsJDseQj](https://open.spotify.com/artist/1tS04Kwkhb59MRBsJDseQj)
 
-Beatport: https://www.beatport.com/artist/adam-ra/964247
+Beatport: [beatport.com/artist/adam-ra/964247](https://www.beatport.com/artist/adam-ra/964247)
 
-Youtube: https://www.youtube.com/@adam.ra.techno
+Youtube: [youtube.com/@adam.ra.techno](https://www.youtube.com/@adam.ra.techno)
 
 ## Pictures
