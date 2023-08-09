@@ -30,14 +30,20 @@ Youtube: [youtube.com/@adam.ra.techno](https://www.youtube.com/@adam.ra.techno)
 
 ## Pictures
 
-<img src="pictures/adam-ra-blue-large.jpeg" width="200" alt="Adam Rå, large blue profile picture" />
+<a href="pictures/adam-ra-blue-large.jpeg">
+<img src="pictures/adam-ra-blue-large.jpeg" width="200" alt="Adam Rå, large blue profile picture" /></a>
 
-<img src="pictures/adam-ra-bw-sevilla.jpeg" width="200" alt="Adam Rå, black and white shoot in Seville" />
+<a href="pictures/adam-ra-bw-sevilla.jpeg">
+<img src="pictures/adam-ra-bw-sevilla.jpeg" width="200" alt="Adam Rå, black and white shoot in Seville" /></a>
 
-<img src="pictures/adam-ra-performance.jpeg" width="200" alt="Adam Rå, black and white shoot at a live performance" />
+<a href="pictures/adam-ra-performance.jpeg">
+<img src="pictures/adam-ra-performance.jpeg" width="200" alt="Adam Rå, black and white shoot at a live performance" /></a>
 
-<img src="pictures/adam-ra-ritual.jpeg" width="200" alt="Adam Rå, dark shoot at a live performance, Rytuał" />
+<a href="pictures/adam-ra-ritual.jpeg">
+<img src="pictures/adam-ra-ritual.jpeg" width="200" alt="Adam Rå, dark shoot at a live performance, Rytuał" /></a>
 
-<img src="pictures/adam-ra-humanoid-cables.png" width="200" alt="Adam Rå, humanoid with cables" />
+<a href="pictures/adam-ra-humanoid-cables.png">
+<img src="pictures/adam-ra-humanoid-cables.png" width="200" alt="Adam Rå, humanoid with cables" /></a>
 
-<img src="pictures/adam-ra-humanoid-tablet.png" width="200" alt="Adam Rå, humanoid with a tablet" />
+<a href="pictures/adam-ra-humanoid-tablet.png">
+<img src="pictures/adam-ra-humanoid-tablet.png" width="200" alt="Adam Rå, humanoid with a tablet" /></a>
