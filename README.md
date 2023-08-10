@@ -7,7 +7,7 @@ _Dark techno_ ✶ _EBM_ ✶ _Industrial_ ✶ _Dark disco_
 ## Notka po polsku
 
 Wrocławski producent i DJ. Miłośnik przytulnego mroku i pesymista. Od ponad ośmiu lat związany z industrialną sceną. Jako samodzielny producent tworzy zarówno atmosferyczne dark techno, jak zwarte, taneczne i neurotyczne techno-EBM. Znany również z duetu Uncarnate (darkwave, electro-pop), który występował m.in. na scenie festiwalu Castle Party.
-Jest również aktywnym DJ-em. Widziano go za konsoletą, m.in. we wrocławskim klubie Ciała i na Wyspie Tamce oraz w krakowskim klubie Baza. Występował też dwukrotnie na niezależnym mini-festiwalu Rejvasummer w Gnieźnie.
+Jest również aktywnym DJ-em. Widziano go za konsoletą, m.in. we wrocławskim klubie Ciało i na Wyspie Tamce oraz w krakowskim klubie Baza. Występował też dwukrotnie na niezależnym mini-festiwalu Rejvasummer w Gnieźnie.
 
 ## Bio in English
 
