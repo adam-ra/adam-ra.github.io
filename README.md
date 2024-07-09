@@ -6,13 +6,13 @@ _Dark techno_ ✶ _EBM_ ✶ _Industrial_ ✶ _Dark disco_
 
 ## Notka po polsku
 
-Wrocławski producent i DJ. Miłośnik przytulnego mroku i pesymista. Od ponad ośmiu lat związany z industrialną sceną. Od stycznia 2024 również związany z Sharped Records (Lyon). Jako samodzielny producent tworzy zarówno atmosferyczne dark techno, jak zwarte, taneczne i neurotyczne techno-EBM.
-Znany również z duetu Uncarnate (darkwave, electro-pop), który występował m.in. na scenie festiwalu Castle Party.
-Jest również aktywnym DJ-em. Widziano go za konsoletą, m.in. we wrocławskim klubie Ciało i na Wyspie Tamce oraz w krakowskim klubie Baza. Występował też dwukrotnie na niezależnym mini-festiwalu Rejvasummer w Gnieźnie. Zapraszany dwukrotnie do nagrania podcastów (Dark Disco i Horror Show).
+Wrocławski producent i DJ. Miłośnik przytulnego mroku i pesymista. Adam tworzy zarówno atmosferyczne, tajemnicze dark techno, jak zwarte i neurotyczne techno-EBM. Wydaje m.in. w Sharped Records (Lyon) i Rawsery Records (Londyn). 
+Nie stroni od współpracy z wokalistami, działa aktywnie w duecie Uncarnate (darkwave, electro-pop), który występował m.in. na scenie festiwalu Castle Party.
+Jako DJ bardziej ceni sobie kreatywność i nowe możliwości stworzone przez AI niż tradycyjny warsztat. Widziano go za konsoletą we wrocławskim klubie Ciało, na Wyspie Tamce oraz w kilku krakowskich klubach. Występował też dwukrotnie na niezależnym mini-festiwalu Rejvasummer w Gnieźnie. Zapraszany dwukrotnie do nagrania podcastów (Dark Disco i Horror Show). 
 
 ## Bio in English
 
-Adam Rå, or Adam Radziszewski, a producer and DJ, an AI researcher and a pessimist. Adam specializes in melodic dark techno and punchy neurotic EBM. He's been a part of Polish industrial scene for over eight years now. In January 2024 he joined the ranks of Sharped Records (Lyon) to release four tracks full of driving techno-EBM. As an active DJ, he's performed in several Polish clubs and one festival. He's been invited to record podcasts twice, delivering consistent stories built from diverse tracks and stems.
+Adam Rå, or Adam Radziszewski, a producer and DJ, an AI researcher and a pessimist. Adam specializes in melodic dark techno and punchy neurotic EBM. In 2024 he joined the ranks of Sharped Records (Lyon) and Rawsery Records (London). As an active DJ, Adam likes to capitalise on the new opportunities created by modern technologies such as stem separation rather sticking to the tradition. He's performed in several Polish clubs and a festival. He's been invited to record podcasts twice, delivering consistent stories built from diverse means.
 Also known as half of Uncarnate (darkwave / electro-pop duo) which played numerous gigs in various venues including the Castle Party Festival.
 
 ## Links
